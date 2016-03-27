@@ -2,4 +2,4 @@
 
 Initializing this to track what I do at NICAR in Denver.
 
-Will upload soon. 
+Will update soon. 
