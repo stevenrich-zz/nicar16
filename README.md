@@ -2,4 +2,4 @@
 
 Initializing this to track what I do at NICAR in Denver.
 
-Will update sooneregarding than later. 
+Will update sooner than later. 
